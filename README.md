@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **navaneethsaipatti@gmail.com,navaneethsai.h20@iiits.in**
 
-- 📄 Resume [https://drive.google.com/file/d/1SuZTDAhuvFITCZPTYpMKY0AINXfF-uDL/view?usp=sharing](https://drive.google.com/file/d/1SuZTDAhuvFITCZPTYpMKY0AINXfF-uDL/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
